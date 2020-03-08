@@ -7,5 +7,4 @@ Example Image:
 
 Join Us in Discord Server - https://discord.drweabo.com
 
-
 © 2020 Copyright: DrWeabo Inc.
